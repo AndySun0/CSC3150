@@ -1,4 +1,4 @@
-# CSC3150
-csc3150 of CUHKSZ\n
-keep updating! \n
-keep up!
+# CSC3150  
+csc3150 of CUHKSZ  
+keep updating!   🙌
+keep up!  😘🐭
